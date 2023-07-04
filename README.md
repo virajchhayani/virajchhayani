@@ -8,7 +8,7 @@
 
 💼 Open to exciting opportunities and collaborations in the cybersecurity space. Let's connect and make a difference together!
 
-📫 You can reach me via email at [your-email@example.com] or connect with me on LinkedIn [https://www.linkedin.com/in/viraj-chhayani-270192233/].
+📫 You can reach me via email at [virajchhayani9999@gmail.com] or connect with me on LinkedIn [https://www.linkedin.com/in/viraj-chhayani-270192233/].
 
 ⚡️ Fun fact: When I'm not exploring the digital realm, you can find me experimenting with new recipes or exploring the great outdoors!
 
